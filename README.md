@@ -1,2 +1,0 @@
-# BetterHealthandScience
-A nonprofit organization
